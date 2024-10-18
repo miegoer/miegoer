@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aidanl0919@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGT7Emg4Y4/AkoBhjpb522ga1GaceEatg/view?utm_content=DAGT7Emg4Y4&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAGT7Emg4Y4/AkoBhjpb522ga1GaceEatg/view?utm_content=DAGT7Emg4Y4&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+- 📄 Know about my experiences [here!](https://www.canva.com/design/DAGT7Emg4Y4/AkoBhjpb522ga1GaceEatg/view?utm_content=DAGT7Emg4Y4&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 - ⚡ Fun fact **I have been permanently scarred by the edge of an iPad!**
 
